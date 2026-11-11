@@ -1,4 +1,4 @@
-Hi, I'm Elle!
+Hi, I'm Cailei!
 I'm an aspiring IT professional passionate about technology, troubleshooting, and AI-powered applications.
 Technical Interests
 - IT Support & Help Desk
